@@ -1,0 +1,1 @@
+Interactive XKCD about dependencies and infrastructure https://editor.p5js.org/isohedral/full/vJa5RiZWs  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/6nJUMg" title="Permalink">Permalink</a>  1
