@@ -1,0 +1,3 @@
+Controller Support · Issue #3568 · pqrs-org/Karabiner-Elements · GitHub https://github.com/pqrs-org/Karabiner-Elements/issues/3568  <div class="markdown"><p>Is there any way to use Karabiner to modify input from game controllers (e.g. PlayStation, XBox, 8bit Do)? If so, how? If not: I suppose I'd like to request it as a feature. I don't know how feasible it would be to add. It would probably...</p></div>
+
+<br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/SS8Oyw" title="Permalink">Permalink</a>  48
