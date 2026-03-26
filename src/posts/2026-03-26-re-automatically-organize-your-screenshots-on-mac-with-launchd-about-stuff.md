@@ -1,0 +1,1 @@
+Automatically Organize Your Screenshots on Mac with launchd | about stuff https://blog.vrnchndk.in/2024/03/02/Automatically-Organize-Your-Screenshots-on-Mac-with-launchd/  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/iEdYtw" title="Permalink">Permalink</a>  1
