@@ -1,0 +1,7 @@
+Friction-In-Design Regulation as 21st Century Time, Place, and Manner Restriction https://digitalcommons.law.villanova.edu/cgi/viewcontent.cgi?article=1134&context=facpubs  <div class="markdown"><blockquote>
+<p>Digital networked society needs friction-in-design regulation that targets the digital architectures, supposedly smart (data-driven, algorithmic) systems, and interfaces that shape human interactions, behavior, and will (beliefs, preferences, values, intentions). The<br />
+relentless push to eliminate friction for the sake of efficiency has hidden social costs that affect basic human capabilities and society. A general course correction is needed.</p>
+<p>In this article, we clear the First Amendment brush and reveal an open and mostly underappreciated regulatory territory to explore. We argue that friction-in-design regulation should be understood as Twenty-First century time, place, and manner restrictions, akin to laws that prohibit using megaphones in the middle of the night, require permits before marches, and prohibit adult theaters in residential neighborhoods. This does not mean that friction-indesign regulation would escape First Amendment scrutiny altogether, of course. But it would trigger intermediate rather than strict scrutiny, so long as the friction-in-design regulation remained content neutral. </p>
+</blockquote></div>
+
+<br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/FloUuQ" title="Permalink">Permalink</a>  151
