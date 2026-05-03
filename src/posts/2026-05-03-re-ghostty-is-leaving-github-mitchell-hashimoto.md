@@ -1,0 +1,1 @@
+Ghostty Is Leaving GitHub – Mitchell Hashimoto https://mitchellh.com/writing/ghostty-leaving-github  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/3ZMkow" title="Permalink">Permalink</a>  1
