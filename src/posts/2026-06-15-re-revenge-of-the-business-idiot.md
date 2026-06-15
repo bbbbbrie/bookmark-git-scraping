@@ -1,0 +1,1 @@
+Revenge of The Business Idiot https://www.wheresyoured.at/the-revenge-of-the-business-idiot/  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/_5t5CA" title="Permalink">Permalink</a>  1
