@@ -1,0 +1,5 @@
+GitHub - RhetTbull/osxphotos: Python app to work with pictures and associated metadata from Apple Photos on macOS. Also includes a package to provide programmatic access to the Photos library, pictures, and metadata. · GitHub https://github.com/RhetTbull/osxphotos  <div class="markdown"><blockquote>
+<p>Python app to work with pictures and associated metadata from Apple Photos on macOS. Also includes a package to provide programmatic access to the Photos library, pictures, and metadata.  - GitHub - RhetTbull/osxphotos: Python app to work with pictures and associated metadata from Apple Photos on macOS. Also includes a package to provide programmatic access to the Photos library, pictures, and metadata.</p>
+</blockquote></div>
+
+<br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/zBIwmQ" title="Permalink">Permalink</a>  64
