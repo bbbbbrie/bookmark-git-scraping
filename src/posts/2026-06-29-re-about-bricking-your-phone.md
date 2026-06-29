@@ -1,0 +1,1 @@
+About Bricking your phone https://getbrick.com/pages/faq  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/ICZspg" title="Permalink">Permalink</a>  1
