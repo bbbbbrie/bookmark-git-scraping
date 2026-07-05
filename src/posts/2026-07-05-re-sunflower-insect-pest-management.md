@@ -1,0 +1,1 @@
+Sunflower Insect Pest Management https://www.ars.usda.gov/ARSUserFiles/30640500/CSC/Web/PhaseIII/Insects/Sunflower_Insects.pdf  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/YLJUkg" title="Permalink">Permalink</a>  1
