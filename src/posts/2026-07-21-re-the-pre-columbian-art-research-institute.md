@@ -1,0 +1,1 @@
+The Pre-Columbian Art Research Institute https://www.precolumbia.org/pari/  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/y--QiQ" title="Permalink">Permalink</a>  1
