@@ -1,0 +1,1 @@
+Introduction to Maya Hieroglyphs https://www.mesoweb.com/resources/handbook/  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/Sb3bXA" title="Permalink">Permalink</a>  1
