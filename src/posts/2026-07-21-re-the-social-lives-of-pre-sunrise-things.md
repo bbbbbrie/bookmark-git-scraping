@@ -1,0 +1,1 @@
+The Social Lives of Pre-Sunrise Things https://www.osea-cite.org/class/quetzil/Quetzil2002_Commentary_Current-Anthroplogy_Mesoamerican_Archeology.pdf  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/pl38FA" title="Permalink">Permalink</a>  1
