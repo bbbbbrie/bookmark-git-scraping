@@ -1,0 +1,1 @@
+Mini-weeknotes 2025×12 – 6work weeknotes https://6work.exmosis.net/2025/03/22/mini-weeknotes-2025x12/  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/YP6uTg" title="Permalink">Permalink</a>  1
