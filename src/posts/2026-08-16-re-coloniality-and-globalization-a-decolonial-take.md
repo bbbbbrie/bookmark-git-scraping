@@ -1,0 +1,1 @@
+Coloniality and globalization: a decolonial take https://www.sit.edu/criticalconversations/assets/Coloniality-and-globalization-a-decolonial-take.pdf  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/hWiwhw" title="Permalink">Permalink</a>  1
