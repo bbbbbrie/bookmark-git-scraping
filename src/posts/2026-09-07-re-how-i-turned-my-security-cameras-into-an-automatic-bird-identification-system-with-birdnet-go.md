@@ -1,0 +1,3 @@
+How I Turned My Security Cameras Into an Automatic Bird Identification System with BirdNet-Go https://jasontucker.blog/how-i-turned-my-security-cameras-into-an-automatic-bird-identification-system-with-birdnet-go/  <div class="markdown"><p>I turned three security cameras into an automatic bird identification system using BirdNet-Go. Now my wife and I can track every bird species that visits our yard in real-time.</p></div>
+
+<br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/ztmmsQ" title="Permalink">Permalink</a>  30
