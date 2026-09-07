@@ -1,0 +1,1 @@
+We Wear the Mask - Paul Laurence Dunbar https://www.poetryfoundation.org/poems/44203/we-wear-the-mask  <br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/mS5ZSg" title="Permalink">Permalink</a>  1
