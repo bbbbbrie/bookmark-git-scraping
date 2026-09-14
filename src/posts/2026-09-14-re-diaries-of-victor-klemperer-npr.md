@@ -1,0 +1,5 @@
+Diaries Of Victor Klemperer : NPR https://www.npr.org/1998/12/22/1009970/diaries-of-victor-klemperer  <div class="markdown"><blockquote>
+<p>Martin Chalmer  English Translator, I Will Bear Witness: A Diary of the Nazi Years l933-l94l by Victor Klemperer [Random House, l998]   Robert von Rimscha Washington Bureau Chief, Tagesspiegel a Berlin daily newspaper    Victor Klemperer, a Dresden Jew and a professor of Romance languages, lived through the Nazi era and kept a detailed account of the humiliations and eventual terror he experienced. When the first volume of his diaries was published in Germany in l995, it caused a sensation. The book sparked a diverse mix of reactions from the generation of Germans born after World War II. Join Ray and his guests to discuss the Klemperer diaries and their effect on younger Germans.</p>
+</blockquote></div>
+
+<br>&#8212; <a href="https://bookmarks.by.brie.dev/shaare/XCZcaw" title="Permalink">Permalink</a>  115
